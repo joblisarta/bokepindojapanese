@@ -1,1 +1,1 @@
-# [bokepindokorea](https://bokepindokorea.pages.dev)
+# [bokepindojapanese](https://bokepindojapanese.pages.dev)
